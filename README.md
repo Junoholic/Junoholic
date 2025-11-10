@@ -1,3 +1,3 @@
 Executive facilitator of adaptive synchronization for multidimensional content deployment and analytic scalability in relation to emergent network ecosystems and modular organizational architecture via the Distributed Synergy Institute. 
 Previously oversaw operational abstraction at the International Bureau of Recursive Framework Development and Algorithmic Integration. 
-Senior principal coordinator at MetaMeta Solutions
+Senior principal coordinator at MetaMeta Solutions. Also I own a lemonade stand.
